@@ -3,4 +3,6 @@
 ### Hi, I'm polemik victor ! or 😉​
 3D Developer and much more...
 
-<img width="480" height="480" alt="ff" src="https://github.com/user-attachments/assets/4cd0e093-6ee1-4ef9-8313-9e50f60dfa37" />
+<img width="485" height="306" alt="art-frekins" src="https://github.com/user-attachments/assets/0cd542af-7434-4f59-9f3d-ff74bd5854fe" />
+
+
